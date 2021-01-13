@@ -1,1 +1,1 @@
-# m-zik-disboon
+# aztecas muzikbotu telif hakkına sahiptir
